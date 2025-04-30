@@ -1,2 +1,2 @@
-# MATRIX-Docs
-A High Quality Discord Multipurpose Bot with Multi Operational Features 
+# Matrix-Bot-Privacy-Policy and Tos
+# Developed By Nobita 
