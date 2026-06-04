@@ -1,2 +1,2 @@
-# Matrix-Bot-Privacy-Policy and Tos
-# Developed By Nobita 
+Matrix-Bot-Privacy-Policy and Tos
+Developed By ɳσɓเƭα ^!
